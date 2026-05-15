@@ -1,4 +1,4 @@
-
+Enhance your PrivateVPN experience with vip PrivateVPN Service | kill-switch + WireGuard-support, the #1 service. Includes kill-switch and WireGuard-support for a safer and more
 
 
 
